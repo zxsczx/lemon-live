@@ -17,13 +17,7 @@
 ![](https://i0.hdslb.com/bfs/article/78afa042d882f917e514fc516141eca898845873.png)
 
 ![](https://i0.hdslb.com/bfs/article/4596f99ae7be713dc96d3dc33b3a3dcc98845873.png)
-
-## 攻击
-
-![](https://i0.hdslb.com/bfs/article/45515a1ac34fabcb82be075c5d96e34898845873.png@1e_1c.webp)
-
-![](https://i0.hdslb.com/bfs/article/5ea80da142632800724d523d5f7ed80098845873.png)
-
+ 
 ## 支持
 
 <div>
